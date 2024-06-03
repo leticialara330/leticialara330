@@ -10,4 +10,4 @@ utilizo este espaço para minha organização e conpartilhamento dos eus projeto
 
 00001113045280sp@aluno.educacao.sp.gov.br 
 
-![](https://medial.tenor.com/m/7FYpoXfpAIUAAAAd/snowball-bunny.gif}
+![coelho](https://github.com/leticialara330/leticialara330/assets/170097069/d35732f6-1d99-42a8-b466-0de44ca29188)
