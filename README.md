@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 meu nome e leticialara330
+estou estudando na [Alura](https://www.alura.com.br]
 
 estou desenvolvendo na linguagem javascript
 
